@@ -1,1 +1,0 @@
-# seanyx.github.io
